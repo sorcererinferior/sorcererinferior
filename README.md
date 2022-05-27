@@ -1,5 +1,5 @@
-#### anonymous alt account
+#### Hi There 👋
 
-I have a cat that sleeps in crazier shapes than me.
+My alt account. I use personal one for my job so this is a hobby account.
 
-My profile pic is a derivation of an [original art by WesTalbott](https://www.deviantart.com/westalbott/art/Dr-Strange-654556663). Great artist!
+My profile pic is a gimp&inkscape'ified derivation of [original art by WesTalbott](https://www.deviantart.com/westalbott/art/Dr-Strange-654556663). Great artist!
